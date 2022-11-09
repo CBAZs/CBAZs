@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @CBAZs 
-- 👀 I’m interested in ... cybersecurity  
-- 🌱 I’m currently learning ... Kali
+- 👀 I’m interested in ... corridos tumbados 
+- 🌱 I’m currently learning ... a eso de los jakersfeisbuk
 - 💞️ I’m looking to collaborate on ... uwu
 
 - 📫 How to reach me ... Discord CBAZs#9897
